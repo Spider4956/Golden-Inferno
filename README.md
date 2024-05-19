@@ -1,2 +1,2 @@
 # Golden-Inferno
-A webnovel
+A webnovel written by Daniel Adesina
