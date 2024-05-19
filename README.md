@@ -1,0 +1,2 @@
+# Golden-Inferno
+A webnovel
