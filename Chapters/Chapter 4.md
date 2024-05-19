@@ -32,3 +32,5 @@ Bianca rolled her eyes and chucked Winston a rock from behind her back which he 
 “Look, I'm not some dog you have to watch, I know I'm weak but-” Winston began mumbling and he looked to Bianca for help but she shook her head. “I found the demon's weakness, this could-”
 “You and every other hunter in this world. Did you not pause to think about why demons were mining their weaknesses?” Zenon said slightly annoyed and Bianca's face dropped as it clicked in her head.
 “No way. It shouldn't work.” She had a very serious look on her face, “Where's the mine entrance Zenon? We have got to stop whatever they're planning.”
+
+[Next chapter >>](<Chapter 5.md>)

@@ -11,3 +11,5 @@ Team two approached the massive gate. Each member had a different face. One was 
 “Look.” He began, “We all want the same thing so it shouldn’t be a problem.” However, Zenon had already started walking towards the gate.
 “Just try not to die and we’ll be fine,” he said in a light voice that didn’t seem to fit his look.
 “Yeah, good luck with that. You-” although Bianca was cut off as an announcement called them to leave and enter the wasteland otherwise known as the darklands.  
+
+[Next chapter >>](<Chapter 3.md>)
