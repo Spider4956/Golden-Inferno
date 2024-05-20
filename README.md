@@ -1,5 +1,5 @@
 # Golden Inferno
-A webnovel written by Daniel Adesina
+A webnovel written by Rai Spider
 
 ### Start Reading!
 - [Prologue](Chapters/Prologue.md)
