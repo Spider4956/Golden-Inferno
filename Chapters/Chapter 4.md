@@ -10,7 +10,7 @@ A day had passed and after travelling together they seemed to have grown closer.
 The group approached the edge of the pit peeking over. Oddly enough, the surrounding area was devoid of life and they had no issue getting in close. The sight before them was definitely one to behold. Clumps of shiny metals in the centre, surrounded by odd figures with horns who seemed to be harvesting it. A huge pit of fire. 
 “Looks like a mining operation but those are no humans.” Zenon muttered, “Even weirder, they’re wearing…protective gear?”
 “We have to shut it down. Whatever it is, they’re never up to any good.” Bianca replied.
-“Better to keep things quiet. I'll go in and see what information I can get without forcing a fight.” Zenon nodded to Bianca before drawing his katana and dropping down into the pit landing on a demon walking a cart on the top layer. He landed on its shoulders simultaneously driving the blade into its head so it looked like Frankenstein. Then, he disappeared out of view.
+“Better to keep things quiet. I'll go in and see what information I can get without forcing a fight.” Zenon nodded to Bianca before drawing his katana and dropping down into the pit landing on a demon walking a cart on the top layer. He landed on its shoulders simultaneously driving the blade into its head so it looked like Frankenstein’s monster. Then, he disappeared out of view.
 
 “How long do you think he's going to take?” Winston moaned as he cautiously spun his spear, it was clear he hadn't exactly mastered the weapon with his lack of confidence. Bianca shrugged and continued stacking rocks like she had earlier.
 “He might be dead. Wouldn't exactly be a shame though if he was.”
