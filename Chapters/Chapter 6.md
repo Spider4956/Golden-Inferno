@@ -26,4 +26,4 @@ Zenon noticed her waking up and turned to face her as Winston leapt into the air
 “Did you know Winston’s been holding back all this time?” He said subtly changing the topic, “He was nowhere near his limits, all he needed was a little push I guess. He shouldn’t be holding us back anymore.” He glanced at the boy on his shoulder, to an outsider it looked quite comical as Winston had a somewhat more defined build than Zenon whose clothes seemed to hide basically everything about his body. 
 “That’s good. I’m still recovering but I can handle any demons we come across, hopefully, an extra pair of hands will be helpful.” She swung round and stopped in front of Zenon, getting rather close to his face, looking him in the eyes, “You haven’t rested, have you?” 
 “I don’t need to yet. I can go this entire month without needing to. I’ll be fine.” He swiftly walked around her, “You can never drop your guard in the darklands.” 
-“You got that right,” Bianca said coldly as she pulled out a Gallion arrow tip and rushed at Zenon from behind.
+“_You got that right_,” Bianca said coldly as she pulled out a Gallion arrow tip and rushed at Zenon from behind.
