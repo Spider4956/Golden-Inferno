@@ -4,6 +4,8 @@ The sound of footsteps quietly bounced off the walls of the tunnel as the trio m
 “How can you guys even see anything?” Winston moaned, “It’s literally pitch black.” He huffed as he held onto Bianca’s sleeve. 
 “Stop whining like a little bitch.” She muttered as they continued through the tunnels, eventually getting to a point with three separate partings.
 “No. Before you even say it, we are not splitting up. I am sick and tired of seeing that trope everywhere and everyone getting crapped on by some stupidly overpowered opponent.” Winston scoffed, he may not be able to see but the light level from each way told him all he needed to know. 
+“Stop whining like a little bitch.” She muttered as they continued through the tunnels, eventually getting to a point with three separate partings.
+“No. Before you even say it, we are not splitting up. I am sick and tired of seeing that trope everywhere and everyone getting crapped on by some stupidly overpowered opponent.” Winston scoffed, he may not be able to see but the light level from each way told him all he needed to know. 
 “Fine then, be like that. I guess we’re sticking together.”
 “Let’s stick to the left. That way we can easily follow the wall without too many issues hopefully.” Zenon suggested. After hearing no complaints he shrugged and they went that way, eventually, they heard anvils. It no longer sounded like mining, but rather like creating. Smoke billowed their way and they followed it till they got to another parting.
 “Since I chose the last one, Bianca can choose now,” Zenon muttered although he got no response. “Bianca…?” He asked, turning to look at her.
