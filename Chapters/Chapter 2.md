@@ -10,6 +10,6 @@ Team two approached the massive gate. Each member had a different face. One was 
 “This is ridiculous.” the brown-skinned girl snapped back at Winston “We don’t need to spend an entire month to become fucking Hunters.” she huffed “Especially with that thing.” she nodded towards Zenon who looked back at the two not saying much although Winston was just left confused. 
 “Look.” He began, “We all want the same thing so it shouldn’t be a problem.” However, Zenon had already started walking towards the gate.
 “Just try not to die and we’ll be fine,” he said in a light voice that didn’t seem to fit his look.
-“Yeah, good luck with that. You-” although Bianca was cut off as an announcement called them to leave and enter the wasteland otherwise known as the darklands.  
+“Yeah, good luck with that. You-” although Bianca was cut off as an announcement called them to leave and enter the wasteland otherwise known as the darklands.
 
 [Next chapter >>](<Chapter 3.md>)

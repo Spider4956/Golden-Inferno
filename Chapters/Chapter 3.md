@@ -14,7 +14,7 @@ Zenon was the first of his group to step on the precariously held bridge althoug
 “So there’s apparently a stronghold just before the Pitch Forest.  I’m guessing we should aim to travel there if we want the greatest chance of survival. It has a barrier so we should be safe there and I’m guessing there’s a ton of hunter-only gear that we could get there.” She showed the map to the others, “We just need to cut through a ravine 2 days North and then after 5 days of travelling through it we should reach the city of Alchate.” 
 “Is it magical?” Winston perked up with a jokey grin as Bianca sort of rolled her eyes.
 “Yes Winston, it is.” She put the map back in the bag. “Might as well start travelling now.”
-“Wait, wait, wait.” Winston jumped in, “How do you guys know so much about the unexplored darklands which none of us were legally allowed to enter until this moment.” He raised an eyebrow “How can I trust that I’m not surrounded by demons who are waiting for the perfect opportunity to kill me.” Bianca opened her mouth as if she was about to say the most horrid response but she got cut off by Zenon,
+“Wait, wait, wait.” Winston jumped in, “How do you guys know so much about the unexplored darklands which none of us were legally allowed to enter until this moment.” He raised an eyebrow “How can I trust that I’m not surrounded by demons who are waiting for the perfect opportunity to kill me?” Bianca opened her mouth as if she was about to say the most horrid response but she got cut off by Zenon,
 “You already answered your question, Winston. Legally.” He shrugged and started walking again.
 
 [Next chapter >>](<Chapter 4.md>)
