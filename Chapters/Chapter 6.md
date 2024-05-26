@@ -12,7 +12,7 @@
 
 “Watcha looking at?” Winston asked as Zenon jolted slightly, realising his gaze rested on the boy a little longer than he expected.
 
-“My bad.” Zenon replied rubbing his arms slightly before standing up, his appearance had changed slightly after their latest ‘obstacle’ although it was hard to say what was different. I mean visually, of course, there was clearly a sack around his shoulder which seemed to clank whenever he moved although there was something clearly different about him. “Stand up Winston,” Zenon said, almost in a commanding voice. “There’s no point just sitting around doing nothing. You’re gonna get stronger.” Zenon walked over and put a foot on Winston's hammer, sliding it over to him.
+“My bad.” Zenon replied, rubbing his arms slightly before standing up, his appearance had changed slightly after their latest ‘obstacle’ although it was hard to say what was different. I mean visually, of course, there was clearly a sack around his shoulder which seemed to clank whenever he moved although there was something clearly different about him. “Stand up Winston,” Zenon said, almost in a commanding voice. “There’s no point just sitting around doing nothing. You’re gonna get stronger.” Zenon walked over and put a foot on Winston's hammer, sliding it over to him.
 
 “You’re kidding, right? After all that?”
 
@@ -26,7 +26,7 @@ Bianca slowly opened her eyes with a slight surprise at how dark it was now. She
 
 Zenon noticed her waking up and turned to face her as Winston leapt into the air, the moon acting as his background. “ZENON!” She shouted as the hammer came swinging down. A cloud of dust erupted as the hammer landed and a wave of wind below over, covering Bianca in dust. As it settled she saw Winston on one knee, panting with a small stream of blood coming out the side of his mouth. Zenon was stood behind him completely unscathed.
 
-“Good job Winston.” The white-haired boy would grin as Winston gave a small smile before letting go of the hammer and collapsing on his side. Bianca would rush over and notice his hands had calluses and were bloodied.
+“Good job Winston.” The white-haired boy grinned as Winston gave a small smile before letting go of the hammer and collapsing on his side. Bianca rushed over and noticed his hands had calluses and were bloodied.
 
 “How long have you had him doing this?”
 
@@ -36,9 +36,9 @@ Zenon noticed her waking up and turned to face her as Winston leapt into the air
 
 “Around a week.”
 
-“What’s even in that bag?” Bianca asked as they walked with Zenon carrying Winston over one shoulder. 
+“What’s even in that bag?” Bianca asked as they walked with Zenon carrying Winston over one shoulder.
 
-“Oh, this?” Zenon paused and pulled it over his neck with one hand before handing it to Bianca, “A gift for you.” She would open it to see arrow tips made out of Gallion, “Spent some time raiding the area after we were finished. Figured these would be quite useful for you.” He nodded as they continued their journey.
+“Oh, this?” Zenon paused and pulled it over his neck with one hand before handing it to Bianca, “A gift for you.” She opened it to see arrow tips made out of Gallion, “Spent some time raiding the area after we were finished. Figured these would be quite useful for you.” He nodded as they continued their journey.
 
 “Er, thanks.” She muttered, not really sure what to say before giving Zenon a light punch on the shoulder, “I guess I was really out of it huh.” Zenon gave a light nod as he focused on the path ahead.
 
