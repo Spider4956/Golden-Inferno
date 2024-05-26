@@ -49,3 +49,5 @@ Zenon noticed her waking up and turned to face her as Winston leapt into the air
 “I don’t need to yet. I can go this entire month without needing to. I’ll be fine.” He swiftly walked around her, “You can never drop your guard in the darklands.”
 
 “_You got that right_,” Bianca said coldly as she pulled out a Gallion arrow tip and rushed at Zenon from behind.
+
+[Next Chapter >>](<Chapter 7.md>)
