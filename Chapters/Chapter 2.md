@@ -12,7 +12,7 @@ Team two approached the massive gate. Each member had a different face. One was 
 
 “So then…” A scruffy boy with brown hair that either seemed to be greying began “Seeing as we’re going to be spending a whole month we might as well get to know each other?” He shrugged trying to incite conversation although he seemed more focused on Bianca than Zenon who emptily looked at the gate as it opened at a snail's pace. “What do you guys say?”
 
-“This is ridiculous.” the brown-skinned girl snapped back at Winston “We don’t need to spend an entire month to become fucking Hunters.” she huffed “Especially with that thing.” she nodded towards Zenon who looked back at the two not saying much although Winston was just left confused. 
+“This is ridiculous.” the brown-skinned girl snapped back at Winston “We don’t need to spend an entire month to become fucking Hunters.” she huffed “Especially with _that_ thing.” she nodded towards Zenon who looked back at the two not saying much although Winston was just left confused. 
 
 “Look.” He began, “We all want the same thing so it shouldn’t be a problem.” However, Zenon had already started walking towards the gate.
 
