@@ -7,6 +7,7 @@ They never forgot though. The world is theirs and they were going to take it bac
 
 The hall bustled with movement and noise as a large number of people entered the room. Each - despite looking vastly different - had one definable feature that was common between everyone, a tag with a number over their heart. 
 “Excuse me,” A somewhat young girl would mutter, pushing past a white-haired boy and then pausing, glancing back at him, “Do I know you?” She asked although he had already disappeared into the rest of the crowd. Giving a slight frown she’d continue pushing past others, feeling out of place at the amount of adults there. After all, this wasn’t a profession you live to old age in so most people join it when they reach their prime of life. She spotted a tall brown-haired boy who looked slightly nervous to be there, at least she wasn’t alone in regards to age although she doubted he would last long. He seemed rather weak, it is better to not speak to someone who probably won’t even get past the first phase. 
-“Welcome everyone!” A voice would echo as the doors to the hall creaked open, revealing a forest. “The first phase of the hunter exam will begin now. Your first task….Survive.”
+
+“Welcome everyone!” A voice would echo as a hooded angel (the most defining feature of the room) would fall away alongside the wall behind it, revealing a forest. “The first phase of the hunter exam will begin now. Your first task….Survive.”
 
 [Next chapter >>](<Chapter 1.md>)
