@@ -8,7 +8,7 @@ Zenon would spot people in the distance and halt the team.
 
 “No, we don’t know what they’re like. Could just be extra luggage. Look, there's only two of them. The other must have died…or-”
 
-She jumped back just as a metal bat swung through the air. Winston would immediately open his hammer and swing although it got blocked by a greatsword as three people suddenly became visible.
+She jumped back just as a metal bat swung through the air. Winston would immediately open his hammer and swing, although it got blocked by a greatsword as three people suddenly became visible.
 
 “Dammit Anthony, I thought your invisibility lasted until you turned it off.” Kimi would growl as he twirled the bat in his hand looking at Anthony who was pushing back against Winston, somewhat surprised at his strength.
 
@@ -16,15 +16,15 @@ She jumped back just as a metal bat swung through the air. Winston would immedia
 
 “Why even are you guys attacking us?” Zenon would ask, standing still as he remained alone. “There’s no point, we aren’t in Phase One anymore.”
 
-“The fewer people that survive the better, we will get a higher rank that way you Kid.” Kimi snarled as he took another swing at Bianca who once again got distance. Out of nowhere, a woman would leap at Zenon although he stood still and she passed straight through him, dissipating into the air as he elbowed the area behind him and a loud crack was heard as the original woman who leapt at him materialised bent over in pain.
+“The fewer people that survive the better, we will get a higher rank that way, you kid.” Kimi snarled as he took another swing at Bianca who once again got distance. Out of nowhere, a woman would leap at Zenon although he stood still and she passed straight through him, dissipating into the air as he elbowed the area behind him and a loud crack was heard as the original woman who leapt at him materialised bent over in pain.
 
 “Projections huh?” He looked down at her, his eyes devoid of any emotion. “You guys underestimated us.” He said as Winston broke free of the greatsword and slammed it into Anthony’s side, sending him flying. “If you leave now, we won’t kill you.”
 
 “You guys aren’t even using magic!” Kimi hissed, “This should be light work.” He laughed running at Bianca, twirling the bat round thrice as fast as before an arrow pierced his head and he fell backwards, twitching in pain before laying still.
 
-“What a clown,” Bianca muttered before looking to the rest of team 1 who looked shocked. “Now you guys won’t even become hunters. Let’s put them out of misery Zenon.” She said taking a step towards Anthony before Winston stepped in between them.
+“What a clown,” Bianca muttered before looking at the rest of Team 1 who looked shocked. “Now you guys won’t even become hunters. Let’s put them out of misery Zenon.” She said taking a step towards Anthony before Winston stepped in between them.
 
-“No, we’ve already won.” He pointed out before nodding towards the defeated looks of the other two, leave them be.
+“No, we’ve already won.” He pointed out before nodding towards the defeated looks of the other two, "leave them be."
 
 “Why do you have to be such a hero, Winston,” Bianca questioned.
 
