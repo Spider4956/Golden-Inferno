@@ -43,7 +43,7 @@ Winston shuffled to the edge and looked down, it seemed like activity had comple
 
 Bianca rolled her eyes and chucked Winston a rock from behind her back which he almost dropped. 
 
-“Boom caught it.” He boasted as he swung his legs into a cross. Unfortunately, this caused him to kick Bianca's pile of rocks into the pits which would have been fine if they hadn't all slammed into a cart filled with metals. Now this wouldn't have been a problem if the cart didn't decide to tip all those metals and come crashing down creating a sort of chain reaction and a sound loud enough for everyone to hear. “Er, oops?”
+“Boom caught it.” He boasted as he swung his legs into a cross. Unfortunately, this caused him to kick Bianca's pile of rocks into the pits which would have been fine if they hadn't all slammed into a cart filled with metals. Now this wouldn't have been a problem if the cart didn't decide to tip all those metals and come crashing down creating a sort of chain reaction and a sound loud enough for _everyone_ to hear. “Er, oops?”
 
 “You're a fucking idiot, Winston,” Bianca growled very frustrated as she unfolded her metal pipes into what became a bow and slid down the side of the pit into it. Winston tumbled behind her. “Now everyone knows we're here. We have to get Zenon and leave.”
 
