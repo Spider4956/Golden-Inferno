@@ -6,7 +6,7 @@ The sound of footsteps quietly bounced off the walls of the tunnel as the trio m
 
 “Stop whining like a little bitch.” She muttered as they continued through the tunnels, eventually getting to a point with three separate partings.
 
-“No. Before you even say it, we are not splitting up. I am sick and tired of seeing that trope everywhere and everyone getting crapped on by some stupidly overpowered opponent.” Winston scoffed, he may not be able to see but the light level from each way told him all he needed to know. 
+“No. Before you even say it, we are _not_ splitting up. I am sick and tired of seeing that trope everywhere and everyone getting crapped on by some stupidly overpowered opponent.” Winston scoffed, he may not be able to see but the light level from each way told him all he needed to know. 
 
 “Fine then, be like that. I guess we’re sticking together.”
 
