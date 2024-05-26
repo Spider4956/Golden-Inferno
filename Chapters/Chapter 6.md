@@ -6,7 +6,7 @@
 
 “Everything.” He muttered, “For starters, you killing that general as easily as you did. It’s not right, I thought we were minced and you took him out without any hesitation.” He paused, “How are you not already a hunter?”
 
-“Isn’t it obvious, he’s not like us Winston,” Bianca said resting her head back.
+“Isn’t it obvious, _he’s not like us Winston_,” Bianca said resting her head back.
 
 “Don’t try to talk too much, it won’t be easy with your current state,” Zenon muttered, completely ignoring what she said as he looked into the distance. “You were poisoned. It’s like how miners used Canary birds to tell if a mine was safe to work in except we were the canaries. Now get some rest, don’t worry you’re safe with us around.” He looked her in the eye, giving a small smile before she closed her eyes again with a sigh. There wasn’t much for them to do at the moment except wait for her immune system to flush everything out. One thing that intrigued him though was how Winston wasn’t as affected as her.
 
