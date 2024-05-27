@@ -11,3 +11,4 @@ A webnovel written by Rai Spider
 - [Chapter 6](<Chapters/Chapter 6.md>)
 - [Chapter 7](<Chapters/Chapter 7.md>)
 - [Chapter 8](<Chapters/Chapter 8.md>)
+- [Chapter 9](<Chapters/Chapter 9.md>)
