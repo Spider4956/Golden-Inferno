@@ -1,7 +1,9 @@
 # Golden Inferno
 A webnovel written by Rai Spider
 
-### Start Reading!
+<details>
+<summary><h3>Start Reading!</h3></summary>
+<p></p>
 
 - [Prologue](Chapters/Prologue.md)
 - [Chapter 1](<Chapters/Chapter 1.md>)
@@ -18,6 +20,12 @@ A webnovel written by Rai Spider
 - [Chapter 12](<Chapters/Chapter 12.md>)
 - [Chapter 13](<Chapters/Chapter 13.md>)
 
-### Information Central
+</details>
+
+<details>
+<summary><h3>Information Central</h3></summary>
+<p></p>
 
 - [Characters](<Characters/Characters.md>)
+
+</details>
