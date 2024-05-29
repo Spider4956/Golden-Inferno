@@ -13,4 +13,4 @@
 - Mia: The test examiner of the current stage, who assigned the remaining 9 participants into 3 teams
 - Phipps: A nervous tall man wearing a pinstripe suit and the examiner of the previoius stage
 - Winston: A timid lad, attempting to be the cohesive glue between Bianca and Zenon. One must wonder how he was even able to make it past the previous stage.  One of the remaining participants. Part of Team 2
-- Zenon: An impressive young boy (or is he even a boy?).  One of the remaining participants. Part of Team 2
+- [Zenon](<Zenon.md>)

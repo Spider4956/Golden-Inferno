@@ -2,6 +2,7 @@
 A webnovel written by Rai Spider
 
 ### Start Reading!
+
 - [Prologue](Chapters/Prologue.md)
 - [Chapter 1](<Chapters/Chapter 1.md>)
 - [Chapter 2](<Chapters/Chapter 2.md>)
@@ -12,3 +13,11 @@ A webnovel written by Rai Spider
 - [Chapter 7](<Chapters/Chapter 7.md>)
 - [Chapter 8](<Chapters/Chapter 8.md>)
 - [Chapter 9](<Chapters/Chapter 9.md>)
+- [Chapter 10](<Chapters/Chapter 10.md>)
+- [Chapter 11](<Chapters/Chapter 11.md>)
+- [Chapter 12](<Chapters/Chapter 12.md>)
+- [Chapter 13](<Chapters/Chapter 13.md>)
+
+### Information Central
+
+- [Characters](<Characters/Characters.md>)
