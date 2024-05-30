@@ -28,4 +28,6 @@ A webnovel written by Rai Spider
 
 - [Characters](<Characters/Characters.md>)
 
+- [Locations](<Locations/Locations.md>)
+  
 </details>
