@@ -7,7 +7,7 @@
 - Dr Maxwell: AKA Max. The Demon King's scientist. One of the 7 Generals of Hell
 - Kimi: One of the remaining participants. Part of Team 1
 - King of Humanity: Took in Adam as his own
-- Lia: One of the remaining participants. Part of Team 3
+- [Lia](<Lia.md>)
 - [Lisa](<Lisa.md>)
 - [Mary](<Mary.md>)
 - [Mia](<Mia.md>)
