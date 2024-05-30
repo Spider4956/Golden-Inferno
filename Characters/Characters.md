@@ -11,6 +11,6 @@
 - Lisa: One of the remaining participants. Part of Team 1
 - Mary:  One of the remaining participants. Part of Team 3
 - Mia: The test examiner of the current stage, who assigned the remaining 9 participants into 3 teams
-- Phipps: A nervous tall man wearing a pinstripe suit and the examiner of the previous stage
+- [Phipps](<Phipps.md>)
 - [Winston](<Winston.md>)
 - [Zenon](<Zenon.md>)
