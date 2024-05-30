@@ -5,6 +5,13 @@ One of the remaining participants.
 Part of Team 2.
 
 <details>
+  <summary>Chapter 5</summary>
+
+  Zenon seems to have a very strong resistance to poison as shown by his indifference to spending time within 'The Pit'
+  
+</details>
+
+<details>
 <summary>Chapter 7</summary>
 
 Zenon's previous/real name is Nico. His father was ordered to assassinate Bianca's master, which occurred when Zenon was six years old.
