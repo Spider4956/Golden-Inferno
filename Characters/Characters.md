@@ -9,7 +9,7 @@
 - King of Humanity: Took in Adam as his own
 - Lia: One of the remaining participants. Part of Team 3
 - Lisa: One of the remaining participants. Part of Team 1
-- Mary:  One of the remaining participants. Part of Team 3
+- [Mary](<Mary.md>)
 - [Mia](<Mia.md>)
 - [Phipps](<Phipps.md>)
 - [Winston](<Winston.md>)
