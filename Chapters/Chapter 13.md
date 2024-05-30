@@ -12,7 +12,7 @@ After getting used to their new home, Winston and Bianca ventured out, following
 
 “We accept.” Winston smiled. “Probably the best offer seeing how hard it was to get here. Also considering that most of you are half angels?!? Like are we going to gloss over that fact?” He asked somewhat energetically to which Archon shrugged.
 
-“Winston Daichi and Bianca Talia Izumi, you are now Royal Hunters. As such, you will have some classes to attend so you can learn about everything!” Archon grinned to which they sighed.
+“Winston James Daichi and Bianca Talia Izumi, you are now Royal Hunters. As such, you will have some classes to attend so you can learn about everything!” Archon grinned to which they sighed.
 
 “Pretty sure we became hunters to avoid school.” Bianca muttered.
 
