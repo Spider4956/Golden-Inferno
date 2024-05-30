@@ -8,7 +8,7 @@
 - Kimi: One of the remaining participants. Part of Team 1
 - King of Humanity: Took in Adam as his own
 - Lia: One of the remaining participants. Part of Team 3
-- Lisa: One of the remaining participants. Part of Team 1
+- [Lisa](<Lisa.md>)
 - [Mary](<Mary.md>)
 - [Mia](<Mia.md>)
 - [Phipps](<Phipps.md>)
