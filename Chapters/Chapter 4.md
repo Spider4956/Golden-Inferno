@@ -34,7 +34,7 @@ The group approached the edge of the pit peeking over. Oddly enough, the surroun
 
 “How long do you think he's going to take?” Winston moaned as he cautiously spun his spear, it was clear he hadn't exactly mastered the weapon with his lack of confidence. Bianca shrugged and continued stacking rocks like she had earlier.
 
-“He might be dead. Wouldn't exactly be a shame though if he was.”
+“He might be dead. Wouldn't exactly be a shame though if he was. We don’t need him and he doesn’t need us.”
 
 Winston shuffled to the edge and looked down, it seemed like activity had completely disappeared on the side closest to them but he could still faintly hear movement from the other side. “Could I have a try at that? Stacking I mean.”
 “Get your own rocks.”
