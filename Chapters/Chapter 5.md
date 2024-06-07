@@ -12,9 +12,9 @@ The sound of footsteps quietly bounced off the walls of the tunnel as the trio m
 
 “Let’s stick to the left. That way we can easily follow the wall without too many issues hopefully.” Zenon suggested. After hearing no complaints he shrugged and they went that way, eventually, they heard anvils. It no longer sounded like mining, but rather like creating. Smoke billowed their way and they followed it till they got to another parting.
 
-“Since I chose the last one, Bianca can choose now,” Zenon muttered although he got no response. “Bianca…?” He asked, turning to look at her.
+“Since I chose the last one, Bianca can choose now since she wants to be so involved in my life,” Zenon muttered although he got no response. “Bianca…?” He asked, turning to look at her.
 
-“What? Oh yes sorry. There’s a foul smell coming from the left side so let’s go to the right side for now.” She nodded enthusiastically, it looked like she was trying her best to stay awake.
+“What? Oh yes sorry I don't often pay attention to dumbasses. There’s a foul smell coming from the left side so let’s go to the right side for now.” She nodded enthusiastically, it looked like she was trying her best to stay awake.
 
 “Alright then,” Zenon responded as he walked down the right side glancing back to make sure the others were still with him. It seemed the overall pace had slowed down and Bianca was moving sluggishly through. Unfortunately for them, what seemed to be a demon patrol had wandered through the tunnel. An arrow wished past him, barely missing his cheek and struck one of the demons right in the head. “Careful where you’re aiming.” He muttered as he drew his katana and moved towards one of the demons, delivering an X slash across its chest causing it to burst into pieces. He then side-stepped out of the way of an awkwardly thrown spear that landed in the belly of the remaining demon although it didn’t penetrate the whole way in. Zenon grabbed the end and slammed it in before swinging it out of the demon's side causing a cascade of blue-covered guts to flood out as it fell to the ground with a thud. Zenon returned the spear to Winston who smiled sheepishly but Zenon just frowned, “I thought you couldn’t see.”
 
@@ -30,7 +30,7 @@ The tunnel opened up to what seemed to be a library, without any books. Shelves 
 
 “What happened?” Winston asked as Zenon walked over. 
 
-“It looks like she fainted,” Zenon picked her up gently, wrapping her arms around his neck for better support, “We don’t have time to wake her up, Let’s keep going.” He said, pulling Winston to his sleeve before walking through the hallway at the other side of the library, a note of urgency in his voice. 
+“It looks like she fainted, further proving my point as dead weight. Almost like I knew better,” Zenon picked her up gently, wrapping her arms around his neck for better support, “We don’t have time to wake her up, Let’s keep going.” He said, pulling Winston to his sleeve before walking through the hallway at the other side of the library, a note of urgency in his voice.  “It’ll be less of a headache now thank goodness.”
 
 After some more walking, light could be seen at the end of the tunnel. Literally. Zenon took a deep breath preparing for what was at the end before stepping out into an enormous room. It was like a forge coupled with a scientist's laboratory. Vials of things littered the floor whilst demons around them were doing various things with gallion. The centerpiece of the room however was a man with two hammers. One massive hammer on his anvil with a small one in his hand although he dropped this as the trio entered his room.
 
@@ -46,7 +46,7 @@ After some more walking, light could be seen at the end of the tunnel. Literally
 
 “What are you waiting for? There’s twenty-four of you!” Maxwell jeered as Zenon drew his katana and the demons rushed him. 
 
-Blood covered Zenon’s cheek as he breathed heavily, steam rising from his sword as more blood slid off there. His sweaty hair hung over his eyes and a trail of corpses lay behind him.
+Blood covered Zenon’s cheek as he breathed heavily, steam rising from his sword as more blood slid off there. His sweaty hair hung over his eyes and a trail of corpses lay behind him. Winston and Bianca remained untouched and it seemed throughout the entire situation he was more focused on their wellbeing and keeping the demons away if anything. Something he definitely would not have done before, was he getting attached?
 
 “You know I’m impressed, I thought you wouldn’t be able to survive that.” Maxwell effortlessly spun the Warhammer between his fingers as he started walking towards Zenon before stopping and resting on it. He seemed calm and composed even though Zenon saw something else as he stared the General directly in the eye. He was shocked, unprepared. “I have an idea, why don’t you become my slave?” He blurted out somewhat uncertainly. “Yes! That way I can keep you alive and you could work for me. What do you say?” Maxwell hummed, “Your friends could become quite interesting candidates for my future experiments. You don’t have to die here.” He smiled, almost certain that Zenon would accept his wish. He believed he had the leverage. 
 
