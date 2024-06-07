@@ -69,4 +69,9 @@ Bianca rolled her eyes and chucked Winston a rock from behind her back which he 
 
 “No way. It shouldn't work.” She had a very serious look on her face, “Where's the mine entrance Zenon? We have got to stop whatever they're planning.”
 
+“I don’t need you guys to join me. You’re just dead-weight, I’ll move faster on my own.” He replied rather harshly giving Bianca a weird look.
+
+“I don’t give a fuck Zenon, I’m not sitting outside with Winston for an entire day or whatever.” She stepped up to him staring directly into the ocean on either side of his nose. “We are coming, whether you like it or not you cocky bastard.”
+
+
 [Next chapter >>](<Chapter 5.md>)
