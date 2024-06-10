@@ -1,60 +1,65 @@
 # Chapter 9
 
-“That’s weird,” Zenon muttered as a village came into view. “There shouldn’t be anything out here. Must be a trap.” 
-“For sure.” Bianca tilted her head slightly, “Might as well check it out though to see who set the trap. Nothing can be worse than that Maxwell guy, right?”
+After some more travelling the trio would reach a large luscious lake. It sparkled with the reflection of the sun, light rays dancing over the calm ripples that reverberated throughout the lake.
 
-“Yeah might as well.” Zenon nodded. The trio would walk down and look around, noticing it was deserted. “Well, this is trippy,” Zenon muttered as they continued walking through until they got to a statue in the middle. It was of a snake erupting out of the ground.
+“This seems like the perfect place to take a rest wouldn’t you say!” Winston perked up with a small grin.
 
-“This looks really realistic!” Winston remarked as he walked up to it glancing at Bianca who kept a distance behind. “Haha, are you scared Bianca?” Winston would tease as she pouted at him.
+“Why are you smiling like that? It's weird.” Bianca murmured, giving him a suspicious look before shrugging, “But you’re right we might as well stop. Gotta fill up our flasks anyways.” Zenon nodded as he pulled out the large amounts of flasks they were carrying. “If you don’t mind, I have been dying for a wash.” Bianca said removing her outer layer giving Winston a stern look as she began making her way towards a tree that overhung the lake, “You better not try to peek.”
 
-“Shut up.”
+“What, I would never!” Winston retorted, blushing angrily as Bianca stuck out her tongue. “Why does she always do this?” Winston pouted once she was out of earreach, sitting down and hugging his knees to himself as his eyes travelled towards the direction she walked in but they got blocked by Zenon leaning down next to him to fill up the flasks.
 
-“Come on, it’s not even real!” Winston would walk over and place his hand on it.
+“It's because she likes you and probably feels comfortable around you.” Zenon shrugged, “I guess she considers you a friend?”
 
-“Wait!” Zenon reached out as Winston’s hand made contact but nothing happened and Zenon let out a sigh of relief. 
+“One, it would be better to fill up the flasks from deeper into the lake so you don’t get as many floating sediments. Two, does she not like you?”
 
-“What?” Winston asked, looking back confused, “See, I told you. It’s fine!” Zenon shrugged as he looked the snake into its eyes, it still freaked him out. The veins, the iris. It was all way too detailed. Almost like it was frozen in time.
+“One, no you can go do that. Two, she does now.”
 
-“Come on, there’s no point staying here. What if some snake ritualists appear or something? I’d rather not get involved in delusional fools.” Zenon muttered as he turned to walk although he heard a whisper and swung back round. “Did anyone else hear that?” He asked, yet they shook their heads. “Fuck’s sake.” He sighed as he walked up towards the snake and the whispering grew louder, it was nonsensical but it was clearly coming from within the statue. “Anyone in there?” He asked as he knocked on the scales. They felt warm, too warm. The stone of the statue would explode out and shards would litter the area as the statue moved.
+“Fine,” Winston said, kicking his shoes off and grabbing the flasks. “Since you’re too pussy to go near water.”
 
-The enormous snake would keep on coming out of the ground before coming to a rest, looking at the three in front of it. Its large tongue would flicker around as it hissed although its tremendous size made it sound more like a roar. 
+“I never said that.” Zenon frowned before stepping fully clothed into the water, “See?” He indicated snatching some of the flasks from Winston before wading in more.
 
-“Well, that happened,” Zenon said as the team drew out their weapons. The snake wasted no time and dived straight at Zenon who swung his sword trying to catch the edge of its mouth although it didn’t catch and rather, grinded across the scales sending sparks flying into the nearby dry huts setting them on fire. “Crap.” Zenon breathed out as he jumped over the incoming tail. Bianca shot a carefully placed arrow straight at the eye of the snake although it shattered upon contact.
+“You’re a psychopath.” Winston joined him.
 
-“What the fuck.” She exclaimed as she dived out of the way of its body. Winston went from a try and swung his massive hammer at it although it slithered out of the water and Winston fell into the tunnel it originated from. Seeing as they had no other choice, Zenon and Bianca would follow him.
+“I know.”
 
-The darkness and moistness of the cave slammed into each of them as they slid down to the bottom. A lake would be the key feature with statues surrounding the edge. They weren’t recognisable easily, all having hooded looks with an assortment of weapons but the one in the centre was special. It was what seemed to be a woman with a hard face, covered in snakes. No. She was made of snakes. Her dress tails ended in snake tails and each strand of hair was a snake in itself. It was unnerving. Zenon glanced behind him but it didn’t seem like the snake had followed them down, yet. The best bet was that it was waiting for them above.
+“Why are you always like constantly clothed, like not in a weird way but you always look like you’re either in the coldest part of the country or just wearing such bagger stuff no one can see anything? Why?” Winston asked as he started filling up the flasks.
 
-“We have to find another exit,” Zenon said as he walked towards the lake's edge. There was a large groove coming out from it in the form of a snake's belly; the bottom of the lake must have been holding the tail. Winston would pull down some Ivy revealing another tunnel.
+“You literally know I’m an assassin, I have to limit the possibility of enemies predicting me before I carry out an action.” Zenon grinned, “I’ve got that down to a tee. My muscles don’t even twitch before I do something! I’d say I’m pretty unreadable.” He stuck out his chest with a proud look on his face and it was met with Winston giving a blank stare.
 
-“It looks like this entire room is filled with tunnels.” Winston pointed out. “I don’t think it’s worth going through them in case it turns out to be a trap though.”
+“What are you on about?” He sighed before splashing a wave of water at Zenon.
 
-“Good point,” Bianca went to join Zenon by the lakeside. “This lake and those statues must hold some significance, right?” 
+“Oi.” He splashed him back, the splashes growing in increasing amounts until they basically wrestled into the water, Zenon easily overpowering Winston as he stuck his head under, before letting him up momentarily, “Go on, beg for mercy.” Zenon teased.
 
-“Yeah, but I can’t figure out- what the hell!” Zenon dragged Bianca back as a face appeared in the water. What seemed to be a floating statue. The whole lake erupted into faces and Zenon held his ears, the whispers echoing through his head. Winston ran over and grimaced slightly before looking up. 
+“Never!” Winston retorted, closing his eyes as he got sent under once more.
 
-“Er, guys.” He began, “We have a problem.” They were surrounded by the hooded statues who seemed to be within striking distance. “It looks like every statue can bloody move.”
+“I leave you guys alone for like 10 minutes and this is what happens?” Bianca said from the lake edge as she returned in a simple sports bra with her hair sticking to one side of her body, dripping occasionally.
 
-“Wait, if the others can move.” Bianca began looking back at the one in the centre, “That means.” Her eyes widened as the centre statue’s mouth twitched before opening up into a massive cruel smile. “The middle one is alive.” 
+“Since when did you have time to pack extra stuff?” Zenon asked before glancing down realising he had held Winston under a little too long. “Oops.” He laughed slightly as Winston coughed, wiping his eyes.
 
-A living breathing Medusa affronted the eyes of the group and she cackled as she walked across the lake towards the trio who were surrounded by what seemed to be her henchmen. 
+“Screw you.” He shook his hair, droplets flying everywhere. It was only now he noticed Bianca’s somewhat defined build. It made him feel slightly left behind and insecure about his own, sure his muscles had come out after the absurd training Zenon put him through although they didn’t exactly compare to Bianca’s manifesting abs.
 
-“Come on Zenon, this can’t be worse than Maxwell, he’s a bloody general of hell!” Winston somewhat pleaded although Zenon would shake his head. 
+“I prepared very well thank you very much, I’m not basic to the point I have multiple versions of the same clothes.” Bianca stared at the two looking somewhat done with the both of them.
 
-“She’s different. Very different.” He replied as she kept on walking across the lake towards them. “We gotta go.” He turned to leave although once he got too close to the surrounding statue, a tooth would erupt from its cloak and pierce his shoulder causing him to stagger back. “Fuck me. It’s poisoned.” He rolled his eyes and turned to look back at ‘Medusa’ who had stopped some distance from the land. 
+“Hey! It’s effective.” They both replied in unison.
 
-“Zenon!” Bianca would rush to his side making sure to not get within activation distance of their ‘watchers.’ 
+“Whatever. Bring back the flasks unless you wanna drown each other some more.”
 
-“I’ll be fine, the poison isn’t the problem.” He muttered as he applied pressure around his shoulder. His eyes would flicker around as he tried to think of an idea to escape. “Bianca, fire an arrow at Medusa.” He said as his face contorted in pain slightly. With a nod, Bianca would do so and the arrow sliced through the air before freezing completely within 5 metres. “Perfect, I got an idea.”
+“Actually I was the only person getting drowned.” Winston pointed out to which Bianca would give a big smile.
 
-‘Medusa’ seemed to stay where she was, unaffected by the arrow Bianca shot. Zenon would rush towards one of the statues around them watching as it swung although he didn’t try to dodge. He watched it shatter into pieces as Winston slammed his hammer into it from the side. The statue nearby would move to attack but quickly divert its swing to block an incoming arrow as Winston then smashed this statue once more. Rinse and repeat, the statues weren’t smart enough to prioritise and just attacked what was closest to them. Eventually, the only thing left was the trio, Medusa and the statues of the lake. The ground rumbled as the snake erupted from the tunnel above Medusa and wrapped around the entire cave hissing. Its head dove over Medusa and towards the trio as Zenon chucked the oversized tooth into the air.
+“Let’s change that then!” She proposed jumping in towards Zenon.
 
-“Swing batter batter,” he grinned as Winston pounded the tooth with his hammer straight into the snake's open mouth. It burst through the snake and straight into Medusa’s head, shattering it into pieces as the snake fell to the ground, motionless. 
+Zenon would shake the water out of his hair by the side of the lake, completely dripping.
 
-“What did you say?” Winston asked, looking very confused as he leant on the hammer, “It didn’t sound like our language.”
+“See Zenon, teamwork is pretty great huh?” Winston would nudge him by the side.
 
-“It’s a sports term, don’t you guys know it?” Zenon asked although Bianca shook her head. 
+“Not when it’s against me!” He gave a wry grin as he removed his shirt revealing his physique causing both Winston and Bianca’s jaws to drop in complete shock. “What?” He asked, giving them an oblivious look as he flexed his muscles slightly.
 
-“Never heard of it. I guess the thing usually said when setting something like that is ‘Swing batter batter’ but whatever the hell you said isn’t even decipherable.”
+“You are insanely ripped!” Winston stated his eyes flickering between the boy’s eight pack and biceps. Weirdly enough, Winston didn’t feel the same body dysphoria he felt when looking at Bianca. It seemed he had come to terms with the fact he was surrounded by two absolute beasts. “Isn’t he?” Winston turned to Bianca excitedly and she turned away blushing.
+
+“DON’T ASK ME, I WOULDN’T KNOW!” She replied flustered, hiding her face in her shoulder as Zenon innocently wrung out his shirt before wearing it again.
+
+“Well, I think you look very cool, Zenon,” Winston said, patting his shoulder somewhat in awe.
+
+“Er, thanks?” Zenon replied looking very very confused. Honestly the first few months of finally looking like this he would have been pretty pleased but now he was so used to it that he hadn’t really given it a second thought until the others pointed it out. “If you guys are ready I’d say we continue on though, Alchante isn’t too far now.”
 
 [Next Chapter >>](<Chapter 10.md>)

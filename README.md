@@ -19,6 +19,7 @@ A webnovel written by Rai Spider
 - [Chapter 11](<Chapters/Chapter 11.md>)
 - [Chapter 12](<Chapters/Chapter 12.md>)
 - [Chapter 13](<Chapters/Chapter 13.md>)
+- [Chapter 13](<Chapters/Chapter 14.md>)
 
 </details>
 
@@ -27,7 +28,6 @@ A webnovel written by Rai Spider
 <p></p>
 
 - [Characters](<Characters/Characters.md>)
-
 - [Locations](<Locations/Locations.md>)
   
 </details>

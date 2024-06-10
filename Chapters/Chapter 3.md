@@ -22,7 +22,7 @@ Zenon was the first of his group to step on the precariously held bridge althoug
 
 “Thanks.” Winston muttered before continuing, “So where exactly are we meant to be heading?” Bianca brought out a map from her bag “YOU HAD THAT THE WHOLE TIME??!” Winston exclaimed although he was visibly ignored.
 
-“So there’s apparently a stronghold just before the Pitch Forest.  I’m guessing we should aim to travel there if we want the greatest chance of survival. It has a barrier so we should be safe there and I’m guessing there’s a ton of hunter-only gear that we could get there.” She showed the map to the others, “We just need to cut through a ravine 2 days North and then after 5 days of travelling through it we should reach the city of Alchate.” 
+“So there’s apparently a stronghold just before the Pitch Forest.  I’m guessing we should aim to travel there if we want the greatest chance of survival. It has a barrier so we should be safe there and I’m guessing there’s a ton of hunter-only gear that we could get there.” She showed the map to the others, “We just need to cut through a ravine 2 days North and then after 5 days of travelling through it we should reach the city of Alchante.” 
 
 “Is it magical?” Winston perked up with a jokey grin as Bianca sort of rolled her eyes.
 
