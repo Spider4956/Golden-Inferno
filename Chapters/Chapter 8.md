@@ -1,6 +1,6 @@
 # Chapter 8
 
-Zenon would spot people in the distance and halt the team.
+Zenon would spot people in the distance and halted the team.
 
 “Over there.” He nodded, “It looks like team 1. What do you guys wanna do?” He asked, looking at both Bianca and Winston.
 
@@ -12,7 +12,7 @@ She jumped back just as a metal bat swung through the air. Winston would immedia
 
 “Dammit Anthony, I thought your invisibility lasted until you turned it off.” Kimi would growl as he twirled the bat in his hand looking at Anthony who was pushing back against Winston, somewhat surprised at his strength.
 
-“They’re stronger than we expected, screw off.” Anthony would growl in a hoarse voice.
+“They’re stronger than we expected, screw off., Anthony would growl in a hoarse voice.
 
 “Why even are you guys attacking us?” Zenon would ask, standing still as he remained alone. “There’s no point, we aren’t in Phase One anymore.”
 
@@ -24,7 +24,7 @@ She jumped back just as a metal bat swung through the air. Winston would immedia
 
 “What a clown,” Bianca muttered before looking at the rest of Team 1 who looked shocked. “Now you guys won’t even become hunters. Let’s put them out of misery Zenon.” She said taking a step towards Anthony before Winston stepped in between them.
 
-“No, we’ve already won.” He pointed out before nodding towards the defeated looks of the other two, "leave them be."
+“No, we’ve already won.” He pointed out before nodding towards the defeated looks of the other two, "Leave them be."
 
 “Why do you have to be such a hero, Winston,” Bianca questioned.
 
