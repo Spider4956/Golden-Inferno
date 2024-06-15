@@ -54,7 +54,7 @@ Zenon would shake the water out of his hair by the side of the lake, completely 
 
 “Not when it’s against me!” He gave a wry grin as he removed his shirt revealing his physique causing both Winston and Bianca’s jaws to drop in complete shock. “What?” He asked, giving them an oblivious look as he flexed his muscles slightly.
 
-“You are insanely ripped!” Winston stated his eyes flickering between the boy’s eight pack and biceps. Weirdly enough, Winston didn’t feel the same body dysphoria he felt when looking at Bianca. It seemed he had come to terms with the fact he was surrounded by two absolute beasts. “Isn’t he?” Winston turned to Bianca excitedly and she turned away blushing.
+“You are insanely ripped!” Winston stated his eyes flickering between the boy’s eight-pack and biceps. Weirdly enough, Winston didn’t feel the same body dysphoria he felt when looking at Bianca. It seemed he had come to terms with the fact he was surrounded by two absolute beasts. “Isn’t he?” Winston turned to Bianca excitedly and she turned away blushing.
 
 “DON’T ASK ME, I WOULDN’T KNOW!” She replied flustered, hiding her face in her shoulder as Zenon innocently wrung out his shirt before wearing it again.
 
