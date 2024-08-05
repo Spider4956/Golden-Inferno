@@ -1,7 +1,7 @@
 # Characters
 
 - Alexia:  One of the remaining participants. Part of Team 3
-- Anthony: One of the remaining participants. Part of Team 1
+- [Anthony](<Anthony.md>)
 - [Bianca](<Bianca.md>)
 - [Dr Maxwell](<Dr Maxwell.md>)
 - [Kimi](<Kimi.md>)
