@@ -2,7 +2,7 @@
 
 - Alexia:  One of the remaining participants. Part of Team 3
 - Anthony: One of the remaining participants. Part of Team 1
-- Bianca: A dismissive girl, accompanying Zenon and Winston as part of their group.  One of the remaining participants. Part of Team 2
+- [Bianca](<Bianca.md>)
 - [Dr Maxwell](<Dr Maxwell.md>)
 - [Kimi](<Kimi.md>)
 - [King of Humanity](<King of Humanity.md>)
