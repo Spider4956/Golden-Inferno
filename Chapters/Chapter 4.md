@@ -11,7 +11,7 @@ The monsters unfortunately seemed to be in a large abundance and the team didn't
 
 Another couple of metres travelled, another horde. Zenon took charge once again and cleared most of them easily.
 
--
+---
 
 A day had passed and after travelling together they seemed to have grown closer. After all, 24 hours is a long time. Well, they weren’t exactly best friends but an hour of silence can get awkward so Bianca and Winston mostly talked about things with Zenon occasionally chipping in. It was nice. Sort of. It was somewhat dysfunctional but also nice in its weird way. Eventually, Zenon - with his seemingly more adept hearing - heard noise. A loud noise of what seemed to be metal on metal. “Hold on.” He said waving to the others as he listened and looked as far as he could, it looked like the land fell away at some point which he could only assume was the origin of the noise. This was further confirmed by the wisps of smoke rising out of the edge. “There’s definitely something there, we haven’t been travelling long enough to reach Alchante have we?” He asked Bianca who shook her head in response. 
 
