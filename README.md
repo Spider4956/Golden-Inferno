@@ -2,9 +2,13 @@
 A webnovel written by Rai Spider
 
 <details>
-<summary><h3>Start Reading!</h3></summary>
+<summary><h3>Volume One</h3></summary>
 <p></p>
 
+<details>
+<summary><h3>Start Reading!</h3></summary>
+<p></p>
+  
 - [Prologue](Chapters/Prologue.md)
 - [Chapter 1](<Chapters/Chapter 1.md>)
 - [Chapter 2](<Chapters/Chapter 2.md>)
@@ -20,6 +24,8 @@ A webnovel written by Rai Spider
 - [Chapter 12](<Chapters/Chapter 12.md>)
 - [Chapter 13](<Chapters/Chapter 13.md>)
 - [Chapter 14](<Chapters/Chapter 14.md>)
+
+</details>
 
 </details>
 
