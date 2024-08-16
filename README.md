@@ -27,6 +27,12 @@ A webnovel written by Rai Spider
 
 </details>
 
+<details>
+<summary><h3>Volume Two</h3></summary>
+<p></p>
+  
+</details>
+  
 </details>
 
 <details>
