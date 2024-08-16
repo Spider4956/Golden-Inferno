@@ -1,18 +1,19 @@
 # Chapter Four
 
+The monsters unfortunately seemed to be in a large abundance and the team didn't stop getting swarmed. The low-level beasts lacked barely any intelligence and were clearly driven by hunger and primitive instincts yet what they had strength in were their numbers. Not even a few minutes in and Zenon was already dripping in blue blood, it was covering him quicker than it evaporated and his eyes shone through them filled with malice. It was clear he was not fighting comfortably and the result was a look akin to a juggernaut mid-fight. It was one that unnerved Winston. He had stayed back and decided to let the two in front of him do the work but he felt kind of bad for them despite being terrified of them. Noticing an opening, sparing a moment's hesitation the lad rushed forward trying to impale the creature with a spear although he didn't have enough force to actually cut through. Instead, he pushed the beast out of the path of Zenon whose speed caught Winston off-guard. Inadvertently, the white-haired elusive figure would be left wide open. He tried to move although not enough of his body was in contact with the ground causing the demon to get a hit on his side, leaving scratch marks as he grit his teeth.
+
+“You fucktard.” He growled although it wasn't clear who he meant as he pivoted on his landing and slammed his fist into the monster's head, taking it clean off. He then turned to Winston, his eyes gleaming, “Don't get in my way again you useless invertebrate.” This caused Winston to reel back slightly in shock and hurt, he really didn't like people telling him off, even if they had a very small connection to him.
+
+“M-my bad.” He replied, backing away with his hands up.
+
+“That was uncalled for.” Bianca berated a smoking lapiz-skinned Zenon. “You realise if we want to survive here we ALL have to get along together.” She walked up to the boy who didn't seem to care what she was saying and pressed a finger in his chest trying to hide her surprise at its rigidness, “Winston is trying to help. He may be weaker but he's pure of heart and your shitty life sucks attitude doesn't need to rub off on him.” She scowled, walking away not even giving Zenon a chance to reply. He simply flicked some blood off himself and glanced into the distance.
+“Please just leave me alone.” He muttered to no one.
+
+Another couple of metres travelled, another horde. Zenon took charge once again and cleared most of them easily.
+
+-
+
 A day had passed and after travelling together they seemed to have grown closer. After all, 24 hours is a long time. Well, they weren’t exactly best friends but an hour of silence can get awkward so Bianca and Winston mostly talked about things with Zenon occasionally chipping in. It was nice. Sort of. It was somewhat dysfunctional but also nice in its weird way. Eventually, Zenon - with his seemingly more adept hearing - heard noise. A loud noise of what seemed to be metal on metal. “Hold on.” He said waving to the others as he listened and looked as far as he could, it looked like the land fell away at some point which he could only assume was the origin of the noise. This was further confirmed by the wisps of smoke rising out of the edge. “There’s definitely something there, we haven’t been travelling long enough to reach Alchante have we?” He asked Bianca who shook her head in response. 
-
-“Definitely not, we should still have at least a day.” 
-
-“I guess…we go around it?” Winston suggested helpfully to which Zenon and Bianca said “No!” simultaneously. “Oh look at you guys, you’ve gotten closer.” Which caused them to eye each other before taking a step away from one another. 
-
-“No, I still don’t trust that-”
-
-“WELL let’s check out the pit,” Winston said trying to relieve the tension before he’d have to separate them from each other's throats, or well try to since he clearly knew he was inferior to the two monsters in front of him. “We may not know what is down there but if there’s something this massive then we probably don’t wanna go around the outside in case we cross someone even worse scouting out the area. Maybe even an entire army surrounding the place so we might as well go straight through the middle.” Bianca and Zenon just stared at him.
-
-“Wow, Winston.” Bianca gave a slow clap. “Never thought you could think that well. Guess I should give you more credit.” She reached into her pocket and drew out what seemed to be pipes folded in on each other with a piece of string holding it together. “Let’s go then!”
-
-A day had passed and after travelling together they seemed to have grown closer. After all, 24 hours is a long time. Well, they weren’t exactly best friends but an hour of silence can get awkward so Bianca and Winston mostly talked about things with Zenon occasionally chipping in. It was nice. Sort of. Dysfunctional but nice. Eventually, Zenon - with his seemingly more adept hearing - heard noise. A loud noise of what seemed to be metal on metal. “Hold on.” He said waving to the others as he listened and looked as far as he could, it looked like the land fell away at some point which he could only assume was the origin of the noise. This was further confirmed by the wisps of smoke rising out of the edge. “There’s definitely something there, we haven’t been travelling long enough to reach Alchante have we?” He asked Bianca who shook her head in response. 
 
 “Definitely not, we should still have at least a day.” 
 
