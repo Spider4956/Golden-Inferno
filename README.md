@@ -2,11 +2,11 @@
 A webnovel written by Rai Spider
 
 <details>
-<summary><h3>Volume One</h3></summary>
+<summary><h3>Start Reading!</h3></summary>
 <p></p>
 
 <details>
-<summary><h3>Start Reading!</h3></summary>
+<summary><h3>Volume One</h3></summary>
 <p></p>
   
 - [Prologue](Chapters/Prologue.md)
