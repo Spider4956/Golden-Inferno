@@ -1,3 +1,4 @@
+# Chapter 15
 
 Winston and Bianca were panting by the end of the day as neither had fallen. Bianca however seemed in the worse state as she couldn’t take as many hits as Winston. Luna decided to call it a stalemate and they both went home, bruised yet in high spirits. Without hesitation, Winston would collapse on his mat, absolutely exhausted when they got a knock on the door. Seeing that Winston was not going to even bother getting up, Bianca walked over and opened it, seeing a fairly recognisable woman with a tall bald man next to her. They both had the Squad 2 patch on their right shoulder.
 
@@ -67,3 +68,4 @@ Well on the bright side, wandering around helped give them a better idea of the 
 
 “Not as much as Black Ops.” She curtly responded.
 
+[Next Chapter >>](<Chapter 16.md>)
