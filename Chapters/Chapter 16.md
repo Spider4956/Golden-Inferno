@@ -21,6 +21,7 @@ Black Holes were a phenomenon that absorbed anything and everything around them.
 “...Nah.” 
 
 
+
 Nico panted as he dodged another meteor thrown at him. 
 
 “You have got to be taking the piss.” He spat as he spun around before vaulting off another incoming space rock. “I’m guessing at least my powers are space-related?”
@@ -46,7 +47,7 @@ The door opened and a woman fully wrapped in black cloth stepped in soundlessly.
 
 “Good.” She smiled, patting his head before standing up and spinning on her heel. “I am Captain Kelila but you can call me other things. You’ll be out of those chains soon enough unless you prefer them.” She winked before leaving. Zenon was just left there staring into the distance, his mind trying to comprehend whatever the heck that was. He truly hoped the rest of the people he’d be with weren’t similar. 
 
--
+---
 
 “Now,” Luna began, “You’ll eventually reach a stage where you can constantly keep a flow of mana around your body acting as armour in a sense. Of course, it is not indestructible however, it is useful. Especially against small pests seeing as they won’t be able to injure you with basic attacks. Many creatures have to learn mana effectively so you’ll have an advantage over many creatures apart from demons. They know how to use it instinctively, well more so they know how to use Magika which is a reversal of conventional mana. That’s why we have many other things to help beat them.” She raised an eyebrow as Winston raised his hand, “Yes?”
 
