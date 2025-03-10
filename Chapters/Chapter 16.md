@@ -6,7 +6,7 @@ Black Holes were a phenomenon that absorbed anything and everything around them.
 
 “Greetings old man.” Nico would say, raising his hand up. “I must say that this is a rather nice place you have here.”
 
-“It’s a representation of your soul so it’s rather good if you find it nice.” The man said as he started walking towards Nico. “My name is [~~~~~].”
+“It’s a representation of your soul so it’s rather good if you find it nice.” The man said as he started walking towards Nico. “My name is [~~~~~~~~].”
 
 “Pardon?” Nico asked, tilting his head, “I didn’t catch that.”
 
