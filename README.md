@@ -24,6 +24,8 @@ A webnovel written by Rai Spider
 - [Chapter 12](<Chapters/Chapter 12.md>)
 - [Chapter 13](<Chapters/Chapter 13.md>)
 - [Chapter 14](<Chapters/Chapter 14.md>)
+- [Chapter 15](<Chapters/Chapter 15.md>)
+- [Chapter 16](<Chapters/Chapter 16.md>)
 
 </details>
 
