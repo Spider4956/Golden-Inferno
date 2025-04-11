@@ -26,7 +26,7 @@ Nico panted as he dodged another meteor thrown at him.
 
 “You have got to be taking the piss.” He spat as he spun around before vaulting off another incoming space rock. “I’m guessing at least my powers are space-related?”
 
-“Nah. These aren’t even related, to be honest.” Kami swayed his arm, electricity crackling around it. “This is your true power when you prove yourself worthy of wielding it.” He appeared behind Nico. “If you need it, you’ll get it.” He punched a hole through Nico’s chest. “There are many things that I hate in this world but the number one thing is Solar Winds. Remember that, Nico.”
+“Nah. These aren’t even related, to be honest.” Kami swayed his arm, electricity crackling around it. “This is your true power when you prove yourself worthy of wielding it.” He appeared behind Nico. “If you need it, you’ll get it.” He punched a hole through Nico’s chest. “There are many things that I hate in this world but the number one thing is."
 
 ---
 
